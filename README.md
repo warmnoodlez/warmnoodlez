@@ -4,15 +4,14 @@ Sou Thomas Laureano, estudante secundarista atualmente cursando Desenvolvimento 
 Apesar de ser apenas um adolescente de 16 anos, tenho como metas:
 
 ### ｢ ***Metas Internas*** :crescent_moon: ｣
-- Conhecer mais de mim mesmo, para cada vez mais me aperfeiçoar.
-- Ajudar as pessoas que estiverem precisando de alguém para ajudá-las.
-- Deixar minha marca nesse mundo, para que pessoas possam se lembrar de mim.
+- Conhecer mais de mim mesmo, para melhorar minhas habilidades socioemocionais.
+- Ajudar todas as pessoas que estiverem ao meu alcance.
+- Deixar minha marca nesse mundo, para inspirar pessoas a serem elas mesmas.
 
 ### ｢ ***Metas Externas*** :sunny: ｣
-- Me destacar no mundo para inspirar pessoas que não acreditam em si mesmas, mostrando a elas que tudo é possível.
+- Ser um exemplo de pessoa para encorajar quem não acredita em si mesmas, mostrando a elas que tudo é possível.
 - Ser produtivo, útil e auxiliar projetos que possam impactar positivamente a vida das pessoas.
-- Orgulhar minha família e amigos através das minhas conquistas, como forma de honrar as pessoas que acreditaram em mim.
-
+- Honrar minha família e amigos, como forma de honrar as pessoas que acreditaram em mim.
 
 ## ✦ 𝐎 𝐪𝐮𝐞 𝐚𝐩𝐫𝐞𝐧𝐝𝐢 𝐞 𝐢𝐫𝐞𝐢 𝐚𝐩𝐫𝐞𝐧𝐝𝐞𝐫? ✦
 
