@@ -1,7 +1,7 @@
 # ✦ 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝒑𝒓𝒐𝒇𝒊𝒍𝒆 ✦
 
 Sou Thomas Laureano, estudante secundarista atualmente cursando Desenvolvimento de Sistemas.
-Apesar de ser apenas um adolescente de 16 anos, tenho como metas:
+Apesar de ser apenas um adolescente de 17 anos, tenho como minhas metas:
 
 ### ｢ ***Metas Internas*** :crescent_moon: ｣
 - Conhecer mais de mim mesmo, para melhorar minhas habilidades socioemocionais.
