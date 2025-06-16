@@ -11,7 +11,7 @@ Apesar de ser apenas um adolescente de 17 anos, tenho como minhas metas:
 ### ｢ ***Metas Externas*** :sunny: ｣
 - Ser um exemplo de pessoa para encorajar quem não acredita em si mesmas, mostrando a elas que tudo é possível.
 - Ser produtivo, útil e auxiliar projetos que possam impactar positivamente a vida das pessoas.
-- Honrar minha família e amigos, como forma de honrar as pessoas que acreditaram em mim.
+- Orgulhar minha família e amigos, como forma de honrar as pessoas que acreditaram em mim.
 
 ## ✦ 𝐎 𝐪𝐮𝐞 𝐚𝐩𝐫𝐞𝐧𝐝𝐢 𝐞 𝐢𝐫𝐞𝐢 𝐚𝐩𝐫𝐞𝐧𝐝𝐞𝐫? ✦
 
