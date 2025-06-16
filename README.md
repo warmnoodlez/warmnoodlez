@@ -25,6 +25,10 @@ Apesar de ser apenas um adolescente de 17 anos, tenho como minhas metas:
 - Programação em Javascript
 - Usar o framework Django
 
+## ✦ 𝐄𝐧𝐭𝐫𝐞 𝐞𝐦 𝐜𝐨𝐧𝐭𝐚𝐭𝐨: ✦
+- GitHub: [@warmnoodlez](https://github.com/warmnoodlez)
+- E-mail: [thomaslaureano11@gmail.com](mailto:thomaslaureano11@gmail.com)
+
 ## ✦ 𝐎𝐛𝐫𝐢𝐠𝐚𝐝𝐨 𝐩𝐨𝐫 𝐯𝐢𝐬𝐢𝐭𝐚𝐫 𝐨 𝐦𝐞𝐮 𝐩𝐞𝐫𝐟𝐢𝐥! ✦
 Volte quando quiser :) ❤
 <!--
