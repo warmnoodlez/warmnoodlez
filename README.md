@@ -1,17 +1,7 @@
 # ✦ 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝒑𝒓𝒐𝒇𝒊𝒍𝒆 ✦
 
 Sou Thomas Laureano, estudante secundarista atualmente cursando Desenvolvimento de Sistemas.
-Apesar de ser apenas um adolescente de 17 anos, tenho como minhas metas:
-
-### ｢ ***Metas Internas*** :crescent_moon: ｣
-- Conhecer mais de mim mesmo, para melhorar minhas habilidades socioemocionais.
-- Ajudar todas as pessoas que estiverem ao meu alcance.
-- Deixar minha marca nesse mundo, para inspirar pessoas a serem elas mesmas.
-
-### ｢ ***Metas Externas*** :sunny: ｣
-- Ser um exemplo de pessoa para encorajar quem não acredita em si mesmas, mostrando a elas que tudo é possível.
-- Ser produtivo, útil e auxiliar projetos que possam impactar positivamente a vida das pessoas.
-- Orgulhar minha família e amigos, como forma de honrar as pessoas que acreditaram em mim.
+Tenho 17 anos, e estou explorandoj
 
 ## ✦ 𝐎 𝐪𝐮𝐞 𝐚𝐩𝐫𝐞𝐧𝐝𝐢 𝐞 𝐢𝐫𝐞𝐢 𝐚𝐩𝐫𝐞𝐧𝐝𝐞𝐫? ✦
 
@@ -19,10 +9,9 @@ Apesar de ser apenas um adolescente de 17 anos, tenho como minhas metas:
 1. Lógica de Programação
 2. Programação em Portugol
 3. Programação em Python
-4. HTML e CSS
+4. HTML e CSS e JavaScript
 
 ### ｢ ***Irei aprender:*** :open_book: ｣
-- Programação em Javascript
 - Usar o framework Django
 
 ## ✦ 𝐄𝐧𝐭𝐫𝐞 𝐞𝐦 𝐜𝐨𝐧𝐭𝐚𝐭𝐨: ✦
