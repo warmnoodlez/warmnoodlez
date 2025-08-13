@@ -1,7 +1,7 @@
 # ✦ 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝒑𝒓𝒐𝒇𝒊𝒍𝒆 ✦
 
-Sou Thomas Laureano, estudante secundarista atualmente cursando Desenvolvimento de Sistemas.
-Tenho 17 anos, e estou explorandoj
+Sou Thomas Laureano, tenho 17 anos e sou um estudante secundarista atualmente cursando Desenvolvimento de Sistemas.
+
 
 ## ✦ 𝐎 𝐪𝐮𝐞 𝐚𝐩𝐫𝐞𝐧𝐝𝐢 𝐞 𝐢𝐫𝐞𝐢 𝐚𝐩𝐫𝐞𝐧𝐝𝐞𝐫? ✦
 
